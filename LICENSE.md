@@ -1,4 +1,4 @@
-
+new anime card collection Scripts offers the most advanced anime card collection Script, with silent aim and auto-collect. Perfect for dominating any
 
 
 
